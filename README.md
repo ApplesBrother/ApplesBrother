@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ApplesBrother
+- 👀 I’m interested in Science And Mechanics
+- 🌱 I’m currently learning at School
